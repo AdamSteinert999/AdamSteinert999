@@ -4,7 +4,7 @@
 - 📫 How to reach me 
 ig: Ajdzam
 fb: Adam Steinert
-twitter: Ajdzam
+twitter: AdamSteinert1
 
 <!---
 AdamSteinert999/AdamSteinert999 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
