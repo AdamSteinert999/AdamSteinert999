@@ -2,7 +2,8 @@
 - 👀 I’m interested in gaming and living life 
 - 🌱 I’m currently learning much stuff
 - 📫 How to reach me 
-- www.ceskatelevize.cz/porady/1097147804-az-kviz/3044-zahrajte-si#hra-7E0F3A17
+- www.ceskatelevize.cz/porady/1097147804-az-kviz/3044-zahrajte-si#hra-5113A29E
+- 
 ig: Ajdzam
 fb: Adam Steinert
 twitter: AdamSteinert1
