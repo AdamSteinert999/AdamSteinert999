@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @AdamSteinert999
 - 👀 I’m interested in gaming and living life 
-- 🌱 I’m currently learning much stuff
+- 🌱 I’m currently learning some stuff
 - 📫 How to reach me 
 - ig: Ajdzam
-- fb: Adam Steinert
 - twitter: AdamSteinert1
 
 <!---
